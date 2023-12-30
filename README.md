@@ -1,0 +1,1 @@
+some scratch projects from a programming course i took on 2014(?)
